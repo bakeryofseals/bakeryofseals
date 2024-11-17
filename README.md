@@ -1,4 +1,5 @@
-                        hiiiii im suki um i like honkai series, genshin, alsnt, daybreak, 
-                    wuwa, sky:cotl, r1999 & pjsk !!! im kind of an awkward person so um 
-                         BUT DONT BE AFRAID TO TALK TO ME :3 sign my atabook pleas
-                         IM SO PISSED HOW THE FUCK DODS THIS WORK
+⟡　suki, she/seal minor
+
+hii uerm  ![88965871-3B1D-4B5D-952B-FC64167B572A](https://github.com/user-attachments/assets/832b6b26-7760-45b4-be43-c34988a64da3)
+
+ sign my [atabook](https://swallowtail.atabook.org) pleas!1
