@@ -1,5 +1,2 @@
-or amaryllis, she/seal minor
 
-hii erm  ![88965871-3B1D-4B5D-952B-FC64167B572A](https://github.com/user-attachments/assets/832b6b26-7760-45b4-be43-c34988a64da3)
-
- sign my [atabook](https://swallowtail.atabook.org) pleas ^_^
+<img width="289" height="386" alt="image" src="https://github.com/user-attachments/assets/f8df490d-baf9-496d-95f6-9997f7b433fb" />
