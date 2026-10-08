@@ -3,16 +3,21 @@
  
 </p> 
 
--------
-
-<p align="center">　˙　　♡　　꒰❄️꒱　　 </p>
-<p align="center"> 𓈒⠀⠀　➳　　𝚒　𝗅𝗈𝗏𝖾 </p>
+<div align="center">
+<table>
+  <tr>
+    <td>
+<div align="center"> 
+  
+  ˙　　  [♡](https://x.com/bungpa6)　　꒰❄️꒱　　 </div>
+  
+<p align="center">★𓈒⠀⠀　➳　　𝚒　𝗅𝗈𝗏𝖾 </p>
 <div align="center">
   
 ⠀  mᥡ 
-  ⠀[𝖿rіᥱᥒძs](https://listography.com/guizhong/lovemail/%E2%80%A7%E2%82%8A%CB%9A___%E0%B2%8E%E0%BF%94)　　'   </div> 
+  ⠀[𝖿rіᥱᥒძs](https://listography.com/guizhong/lovemail/%E2%80%A7%E2%82%8A%CB%9A___%E0%B2%8E%E0%BF%94)　　'      </div>   
 
-<div align="center">
-
-
+  </tr>
+</table>
+</div>
 
