@@ -11,7 +11,7 @@
   
   ˙　　  [♡](https://x.com/bungpa6)　　꒰❄️꒱　　 </div>
   
-<p align="center">★𓈒⠀⠀　➳　　𝚒　𝗅𝗈𝗏𝖾 </p>
+<p align="center">爱𓈒⠀⠀　➳　　𝚒　𝗅𝗈𝗏𝖾 </p>
 <div align="center">
   
 ⠀  mᥡ 
